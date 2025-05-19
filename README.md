@@ -10,4 +10,6 @@ A huge thank you goes out to every participant, mentor, sponsor, and volunteer w
 
 **Congratulations, MedSage!** Your victory is well-deserved, and we look forward to seeing what incredible projects you build next. Keep inspiring the community and leading the way!
 
+Quote from Winning Team: "I am so proud to have worked on a product that was innovative, impactful, and unique. As the founder and originator of MedSage, this was a great experience."
+
 *Central Valley Hacks 8.0 Organizing Team*
